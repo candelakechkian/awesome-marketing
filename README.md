@@ -15,7 +15,17 @@ A curated list of awesome marketing ideas, innovative campaigns, and brilliantly
 [SATO 2531](https://www.oneclub.org/awards/oneasia/-award/55475/sato-2531/) - An amazing example of the power of data when communicated effectively to its target audience. Japan was the only country that legally required married couples to share a last name, yet the public was largely unaware of the implications. Asuniwa partnered with a university professor to simulate the impact and with Dentsu Digital Inc. Tokyo to convey the findings. The campaign sparked an organic, incredibly powerful social movement and successfully shifted public opinion in favor of allowing separate last names. <br />
 
 [Cerveza Andes Teletransporter](https://www.youtube.com/watch?v=9Q8bascdOLk&t=191s) <br />
-[Quilmes - Coincidencias](https://www.youtube.com/watch?v=d194HTo_Px4) <br />
+[Quilmes - Coincidencias](https://www.youtube.com/watch?v=d194HTo_Px4) - Brilliantly taps into Argentina’s deep-rooted passion for football by weaving together uncanny coincidences from the 1986 and 2022 World Cups, playing directly into the superstitious mindset many Argentinians embrace. The ad does an excellent job incorporating humor while still capturing the deadly serious attitude the country has toward the sport. <br />
+A few translated excerpts from the ad: <br />
+“The 1986 World Cup final was played at 12 noon, and the one in Qatar is going to be played at 12 noon.” “Again with the coincidences?” “How many hours in a day are there to play a final?” <br />
+“The Christmas before the final in ’86, it rained in Buenos Aires. What happened last Christmas? It rained in Buenos Aires.” <br />
+“Canada qualified in ’86, and now again.” “How much football can a country have when its flag is a dry leaf? And they qualified.” <br />
+“In the Qatar final, Jupiter will be in Pisces, and in the ’86 final, Jupiter was also in Pisces.” "Are you kidding me?” “How could I kid about that?” <br />
+“And in ’86, Chile didn’t qualify either.” <br />
+“’86 wasn’t a leap year, right?” “No.” “And this one isn’t either.” “No.” “Let’s go!” <br />
+“My old man said that in ’86, Sucre Street was called Castelli.” <br />
+“Yeah well, in ’86, we had the best in the world.” ... “Now too.” <br />
+"For those who need coincidences, there are coincidences. For those who believe in the team, there is a team." <br />
 
 Apple Data Privacy  <br />
 Example 1: [Data Auction](https://www.youtube.com/watch?v=29eOe9L4KaU)  <br />
