@@ -8,6 +8,10 @@ A curated list of awesome marketing ideas, innovative campaigns, and brilliantly
 
 [Lipton Milk Tea 667 Love Letters](https://www.dentsucreative.com/en-gb/cases/667-love-letters) - Created by Dentsu Inc. Japan, simply a work of art. <br />
 
+[Budweiser marks Lionel Messi's goal record by sending 644 beers to the 160 keepers he scored on](https://sports.yahoo.com/budweiser-marks-lionel-messis-goal-record-by-sending-644-beers-to-the-160-keepers-he-scored-on-165855125.html?guccounter=1&guce_referrer=aHR0cHM6Ly93d3cuYmluZy5jb20v&guce_referrer_sig=AQAAABAi7ndaoSwWTApFrPJ7ksvkfjkfDbmheB9AsLs91YNoSlAsRb419r_lmNEEHwq3msPsARsslK2_mQa54H5aUtSRrl8BuB_8CwFPnsAysmFKN423vMuyc_yVPcNAzvN_E0v1pdupTlHXGnO2ozV0I7A2gNFM4qOgZIXIFu3NaDap) <br />
+
+[Orange - WoMen's Football / The Bleues' Highlights](https://www.youtube.com/watch?v=X_wLVRYHIS4) - <br />
+
 [SATO 2531](https://www.oneclub.org/awards/oneasia/-award/55475/sato-2531/) - An amazing example of the power of data when communicated effectively to its target audience. Japan was the only country that legally required married couples to share a last name, yet the public was largely unaware of the implications. Asuniwa partnered with a university professor to simulate the impact and with Dentsu Digital Inc. Tokyo to convey the findings. The campaign sparked an organic, incredibly powerful social movement and successfully shifted public opinion in favor of allowing separate last names. <br />
 
 [Cerveza Andes Teletransporter](https://www.youtube.com/watch?v=9Q8bascdOLk&t=191s) <br />
