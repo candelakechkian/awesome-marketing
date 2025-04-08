@@ -50,10 +50,11 @@ A few translated excerpts from the ad: <br />
 > "For those who need coincidences, there are coincidences. For those who believe in the team, there is a team." <br />
 
 **Apple Data Privacy** <br />
+While most consumers claim to value data privacy, the fine print of social media EULAs often leads them to share more than they realize. Even when they do realize, privacy can still feel abstract; out of sight, out of mind. Apple excels at making it tangible, visually illustrating what lack of control entails. The animated Apple lock logo is also a standout example of design.  <br />
 Example 1: [Data Auction](https://www.youtube.com/watch?v=29eOe9L4KaU)  <br />
 Example 2: [Flock](https://www.youtube.com/watch?v=_rMV6N4Pl-Y)  <br />
 Example 3: [Tracked](https://www.youtube.com/watch?v=fjf7c-O5GyQ&t=1s)  <br />
-While most consumers claim to value data privacy, the fine print of social media EULAs often leads them to share more than they realize. Even when they do realize, privacy can still feel abstract; out of sight, out of mind. Apple excels at making it tangible, visually illustrating what lack of control entails. The animated Apple lock logo is also a standout example of design.  <br />
+
 
 ## Other Campaigns
 [Mercado Libre Logo Change](https://www.adsoftheworld.com/campaigns/mercado-libre-logo-change), [¡Codo a codo! Mercado Libre cambia su logo para dar mensaje contra el coronavirus](https://www.milenio.com/virales/mercado-libre-cambia-logo-mensaje-coronavirus) - Mercado Libre adapted their logo during the COVID-19 pandemic. Creativity was not affected by the crisis. <br />
